@@ -1,6 +1,5 @@
 ## Olá,meu nome é Arthur 🖤🥀
-
-
+gosto de pesca
 **arthurcamp7/arthurcamp7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
