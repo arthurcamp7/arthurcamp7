@@ -10,5 +10,4 @@
 
 - E amo viajar ✈️ 
 
-![(https://media1.tenor.com/m/N4RwfP0FHCQAAAAC/chaos-king-arthur-pendragon.gif)]
-
+https://media.tenor.com/RP7R_7vu7soAAAAC/arthur-pendragon-arturo-pendragon.gif
